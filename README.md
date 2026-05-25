@@ -1,1 +1,1 @@
-# lzhr78.github.io
+# Gentoo Wallpapers
